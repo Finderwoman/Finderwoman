@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Finderwoman
 - 👀 I’m a lawyer, civil servant and I am interested in e-administration (spanish Public Administration)...
 - 🌱 I’m currently learning how to make it easy this matter
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on projects related to ☝️🤟
 - 📫 How to reach me : taranconsanchezb@gmail.com
 
 <!---
